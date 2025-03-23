@@ -1,3 +1,18 @@
+
+
+Uploading WhatsApp Video 2025-03-23 at 17.54.12_5930aacd.mp4…
+
+![Screenshot 2025-03-23 173813](https://github.com/user-attachments/assets/142ada3d-70bf-4b27-ac73-753388d14b15)
+![Screenshot 2025-03-23 173631](https://github.com/user-attachments/assets/d1733a9a-3d70-4df1-9319-2d4df52d1305)
+![p9](https://github.com/user-attachments/assets/62bf17a2-d24e-422d-a801-90f7fa92c5a6)
+![p8](https://github.com/user-attachments/assets/50236dd8-6d68-41d0-ba98-13378c8fe897)
+![p7](https://github.com/user-attachments/assets/3d20d998-4c7a-4e08-8012-d7a0daa21370)
+![p6](https://github.com/user-attachments/assets/8d47e496-b3da-49b4-b38d-1f339b61a910)
+![p5](https://github.com/user-attachments/assets/c2551299-c7d4-4641-95ec-91b2772da7b2)
+![p4](https://github.com/user-attachments/assets/b5cef7d5-787c-4e1c-b802-f091eda7f933)
+![p3](https://github.com/user-attachments/assets/cd7fc490-1320-45db-819a-8feaba22487b)
+![p2](https://github.com/user-attachments/assets/e468dbcc-5a65-4a86-b0e9-343bd8e184be)
+![p1](https://github.com/user-attachments/assets/9cdb467e-9484-475f-b4d9-dfb5d66ce569)
 # QEasy - QR-Based Personalized Menu System
 
 ## Overview
